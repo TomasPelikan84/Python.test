@@ -4,3 +4,9 @@ Nahrati programu. # 1
 
 get status
 
+dfsfsdfsdf
+sdfsdfsdf
+sdfssdfsfgfhdfg
+gfhfgh
+gfhdfgh
+
